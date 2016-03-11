@@ -1,4 +1,4 @@
-
+:dog: :dog: :dog: YEL :dog: :dog: :dog:
 HI DUANE, IT'S ME, KAREN. :pug: 
 
 
