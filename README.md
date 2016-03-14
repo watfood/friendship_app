@@ -2,9 +2,9 @@
 Muahaahahahahahaha
 
 
-Nelson you fail
+Nelson you jkalskdfjalkdsfj fail
 
 
-Lallalalala
+Lalla CONFLICT lalala
 
-I like Yels hair!!!!!
+I like Gamiliel hair!!!!!
