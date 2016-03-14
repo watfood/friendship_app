@@ -1,10 +1,10 @@
 
-Muahaahahahahahaha
+MuahaahahaNelson loves Yel hahahaha
 
 
 Nelson you jkalskdfjalkdsfj fail
 
 
-Lalla CONFLICT lalala
+Lalla SABOTAGE CONFLICT lalala
 
-I like Gamiliel hair!!!!!
+I like Gamiliel GAD hair!!!!!
