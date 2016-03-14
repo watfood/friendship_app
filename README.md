@@ -18,15 +18,12 @@ HAI, DUANETHAN, ITSA ME, NELSON.
 
 Enjoy… 
 
-
-
-
-
-
-
-
-
-
-
+---------------------------------------------------------------
+NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
+NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
+NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
+NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
+NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
+---------------------------------------------------------------
 
 hey duane add this line down here for practice.
