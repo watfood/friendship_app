@@ -1,14 +1,13 @@
-:dog: :dog: :dog: YEL :dog: :dog: :dog:
-HI DUANE, IT'S ME, KAREN. :pug: 
+
+MuahaahahaNelson loves Yel hahahaha
 
 
-hi Duane the Conquerer, it's me Duane!
+Nelson you jkalskdfjalkdsfj fail
 
 
-Hello, Duane. It's me Yel. I was wondering if after all these years you'd like to meet.
+Lalla SABOTAGE CONFLICT lalala
 
-# friendship_app
-
+<<<<<<< HEAD
 
 HAI, DUANETHAN, ITSA ME, NELSON.
 
@@ -18,7 +17,6 @@ HAI, DUANETHAN, ITSA ME, NELSON.
 
 Enjoy… 
 
----------------------------------------------------------------
 NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
 NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
 NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
@@ -27,3 +25,6 @@ NELSON IS THE BEST HES MAKING THESE CHANGES TO LEARN HOW TO USE GIT
 ---------------------------------------------------------------
 
 hey duane add this line down here for practice.
+
+I like Gamiliel GAD hair!!!!!
+
